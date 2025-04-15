@@ -4,7 +4,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/y7enc8.png"/>
 </p>
-wip .... whoops. just read my rentry and you'll be fine.
+wip .... whoops. just read my rentry and you'll be fine. i love drawing in peoples strawpages when i can ^_^
 </p>
 RENTRY DIRECTORY:
 
